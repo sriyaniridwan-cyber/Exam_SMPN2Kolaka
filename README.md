@@ -1,0 +1,1 @@
+# Exam_SMPN2Kolaka
